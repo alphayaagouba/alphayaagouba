@@ -1,0 +1,1 @@
+- 👋 Hi, I’m @alphayaagouba,I am a student and i like  programing.
